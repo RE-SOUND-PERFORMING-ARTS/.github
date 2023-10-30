@@ -1,4 +1,7 @@
 ## Hi there 👋
+We are a Singapore based 24 Festive Drum Team 
+📩For performance invitation, simply DM us via our socials above ☝️ 
+
 
 <!--
 
